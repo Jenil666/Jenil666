@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **jenilchandarana33@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/jenil/OneDrive/Desktop/resume/resume%203.pdf](file:///C:/Users/jenil/OneDrive/Desktop/resume/resume%203.pdf)
+- 📄 Know about my experiences [https://www.canva.com/design/DAFn4CihYSo/zig9X4V9jMBVWQsEwCx4Fg/edit?utm_content=DAFn4CihYSo&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAFn4CihYSo/zig9X4V9jMBVWQsEwCx4Fg/edit?utm_content=DAFn4CihYSo&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 - ⚡ Fun fact **I can work better in less work load**
 
